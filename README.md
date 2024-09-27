@@ -25,6 +25,8 @@ Copy code
 ![Screenshot 2024-09-28 at 12 00 44 AM](https://github.com/user-attachments/assets/d5a77201-fdc3-4143-a85d-5d5f02373e76)
 
 ![Screenshot 2024-09-28 at 12 01 07 AM](https://github.com/user-attachments/assets/aee524b2-112a-4250-8a75-1edfc8ad09c1)
-![Screenshot 2024-09-28 at 12 01 38 AM](https://github.com/user-a![Screenshot 2024-09-28 at 12 01 52 AM](https://github.com/user-attachments/assets/f17a656b-add7-426c-b835-79ddcb47316b)
-ttachments/assets/b4e8c03a-2bb8-4c57-8dd7-5630c36fdc46)
-![Screenshot 2024-09-28 at 12 02 02 AM](https://github.com/user-attachments/assets/0f2afc20-1a8d-4e9a-8e8e-babc3ecf5d89)
+![Screenshot 2024-09-28 at 12 01 38 AM](https://github.com/user-attachments/assets/eb5ec864-f917-4cbc-bcbf-559332119ec9)
+If you press READ MORE you are sent to the original article.
+![Screenshot 2024-09-28 at 12 01 52 AM](https://github.com/user-attachments/assets/6d93a9b4-420a-430b-80c6-75a4e0caaf57)
+![Screenshot 2024-09-28 at 12 02 05 AM](https://github.com/user-attachments/assets/033c5eac-4817-4a98-9c6e-fa21bf695fc4)
+
